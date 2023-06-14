@@ -1,1 +1,1 @@
-# FirstProjectWPF
+![icon](https://github.com/DaniilSob2004/FirstProjectWPF/assets/106149184/9d5cde72-a4b0-4c89-a2d6-243fa3ee3ea8)
